@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask about me 🤗
 - 📫 How to reach me: dvenkat.rbs@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: ...
+- ⚡ LinkedIn: https://www.linkedin.com/in/rohith-balaram-sai-venkat-dadi-182036240
 
